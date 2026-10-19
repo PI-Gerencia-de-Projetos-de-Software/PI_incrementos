@@ -1,4 +1,3 @@
-(https://github.com/user-attachments/files/33684759/README_EduGest_Municipal.md)
 
 ## 1. Visão geral
 
